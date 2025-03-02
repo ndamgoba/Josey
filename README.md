@@ -1,2 +1,2 @@
 # Josey
-The mostl popular usernameis Josey
+The mostl popular username is Josey
