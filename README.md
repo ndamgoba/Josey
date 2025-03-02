@@ -1,2 +1,2 @@
 # Josey
-The mostl popular nickname is Josey
+The mostl popular usernameis Josey
